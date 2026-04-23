@@ -1,2 +1,0 @@
-# BUSINESS-ADS-NIGER-
-Affiliation 
